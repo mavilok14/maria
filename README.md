@@ -2,4 +2,13 @@
 meu nome é Maria Vitoria 🤠
 14y
 
-https://tenor.com/pt-BR/view/zenitsu-zenitsu-agatsuma-kimetsu-kimetsu-no-yaiba-demon-slayer-gif-21548142
+- estou estudando a disciplina de pc
+
+- estou aprendendo alguns codigos
+
+- estou estudando no alura
+
+# meus contatos
+maria.araujo14@escola.pr.gov.br
+
+https://media.tenor.com/fgoVTHYVejcAAAAC/pink-fire.gif

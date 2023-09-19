@@ -11,4 +11,4 @@ meu nome é Maria Vitoria 🤠
 # meus contatos
 maria.araujo14@escola.pr.gov.br
 
-https://tenor.com/pt-BR/view/frustration-angry-kopam-serious-fire-gif-18484998
+https://media.tenor.com/ymm0TdKS1FwAAAAC/frustration-angry.gif

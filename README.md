@@ -11,4 +11,3 @@ meu nome é Maria Vitoria 🤠
 # meus contatos
 maria.araujo14@escola.pr.gov.br
 
-https://media.tenor.com/ymm0TdKS1FwAAAAC/frustration-angry.gif

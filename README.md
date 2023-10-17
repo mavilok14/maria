@@ -14,5 +14,5 @@ maria.araujo14@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/y0HnKKbCPAoAAAAC/duck-dancing-duck.gif)
+![](https://media.tenor.com/tnIqS-Rkhq4AAAAC/geto-jjk.gif)
 
